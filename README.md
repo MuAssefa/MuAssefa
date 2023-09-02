@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on music, movies, cool AI stuff, anything I think is fun and worth while. 
 - 🤔 I’m looking for help with how to host a website locally.
 - 📫 How to reach me: efa45_muluken@yahoo.com
-- 😄 Pronouns: She/Her 
+- 😄 Pronouns: He/she
 - ⚡ Fun fact: The clitoris has twice as many nerve endings as the penis
