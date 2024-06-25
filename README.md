@@ -11,7 +11,7 @@
 - 👯 Up for captivating collaborations in music, film, intriguing AI ventures, or any project that sparks my curiosity.
 - 🤔 Seeking guidance on hosting a website locally. Have insights to share? I'm all ears!
 - 📫 You can reach me at efa45_muluken@yahoo.com.
-- 😄 Pronouns: He/she
+- 😄 Pronouns: He
 - ⚡ Here's an intriguing fact: Honey never spoils. Archaeologists have even found pots of honey in ancient Egyptian tombs that are over 3,000 years old and still perfectly edible!
 
 Let's connect and embark on exciting journeys together! 🚀
